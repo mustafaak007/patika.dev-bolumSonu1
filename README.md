@@ -1,0 +1,1 @@
+Bu depo patika.dev bölüm sonu çalışması için oluşturulmuştur.
